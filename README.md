@@ -1,1 +1,3 @@
-# mahathi333-icp2
+PANYALA MAHATHI REDDY
+700743307
+neural networks assignment 3
